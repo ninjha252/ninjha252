@@ -1,7 +1,6 @@
-### Hybernating Space:
+### HELLO!
 
-You can find me hybernating in my room, either binge watching some series or sketching something.
-
+I am Nitin Jha from Jamshedpur, Jharkhand. I'm a 3rd year undergraduate Physics student at the Ashoka University. In my leisure time, I like to watch shows, sketch, or paint.
 
 ### My Top 3 Series:
   
@@ -22,5 +21,5 @@ You can reach out to me on the following Instagram Account: [Nitin Jha](https://
 
 ### ART Space:
 
-You can find my sketches, and paintings on the [Instagram](https://instagram.com/nitin.jha__?igshid=YmMyMTA2M2Y=) account.
+You can find my sketches, and paintings on the following: [Portfolio](https://instagram.com/nitin.jha__?igshid=YmMyMTA2M2Y=)
 
