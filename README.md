@@ -10,9 +10,9 @@ I am Nitin Jha from Jamshedpur, Jharkhand. I'm a 3rd year undergraduate Physics 
 
 ### My Top 3 Books: 
 
-  1. A Brief History of Time
-  2. Hyperspace
-  3. The Grand Design
+  1. A Brief History of Time (Stephen Hawking)
+  2. The Grand Design (Stephen Hawking)
+  3. Hyperspace (Michio Kaku)
 
 
 ### Connect with me:
