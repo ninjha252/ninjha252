@@ -2,19 +2,6 @@
 
 I am Nitin Jha from Jamshedpur, Jharkhand. I'm a 3rd year undergraduate Physics student at the Ashoka University. In my leisure time, I like to watch shows, sketch, or paint.
 
-### My Top 3 Series:
-  
-  1. Breaking Bad
-  2. HIMYM
-  3. Daredevil
-
-### My Top 3 Books: 
-
-  1. A Brief History of Time (Stephen Hawking)
-  2. The Grand Design (Stephen Hawking)
-  3. Hyperspace (Michio Kaku)
-
-
 ### Connect with me:
 
 You can reach out to me on the following Instagram Account: [Nitin Jha](https://instagram.com/nitin._.jha?igshid=YmMyMTA2M2Y=)
