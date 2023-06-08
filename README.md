@@ -8,5 +8,5 @@ You can reach out to me on the following Instagram Account: [Nitin Jha](https://
 
 ### ART Space:
 
-You can find my sketches, and paintings on the following: [Portfolio](https://instagram.com/nitin.jha__?igshid=YmMyMTA2M2Y=)
+You can find my sketches, and paintings on the following: [Portfolio](https://instagram.com/nin._.jha?igshid=MzRlODBiNWFlZA==)
 
