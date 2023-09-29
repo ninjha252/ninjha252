@@ -1,6 +1,6 @@
 ### HELLO!
 
-I am Nitin Jha from Jamshedpur, Jharkhand. I'm a 3rd year undergraduate Physics student at the Ashoka University. In my leisure time, I like to watch shows, sketch, or paint.
+I am Nitin Jha from Jamshedpur, Jharkhand. I'm currently purusing research in Quantum Networking and their respective routing protocols at Kennesaw State University, GA, USA. 
 
 ### Connect with me:
 
